@@ -10,3 +10,5 @@ im a simple programer this is not may work
 this is may hobby your simple follow is my happines
 # by the way this is the part of may DARKADVANCE TOOL then i git it off for you guys please enjoy
 # this is may own code mr.trial code
+i program this with auto sleep if you block by fb and this tool not waste a single password and not error 
+this is the advance tool of mine 
